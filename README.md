@@ -1,1 +1,0 @@
-# coronivia.github.io
